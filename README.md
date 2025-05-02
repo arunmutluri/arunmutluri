@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi I'M Arun Kumar 👋
 
 💡 Artificial Intelligence & Data Science Student at IIITDM Kurnool (2022-2026)<br/>
 
